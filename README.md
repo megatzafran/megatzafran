@@ -1,2 +1,1 @@
-hi my name is megat zafran and i'm addicted to coding :)
-
+Man.  These KFC beyond nuggets are hittin.
